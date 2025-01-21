@@ -1,4 +1,6 @@
-## Hi there 👋
+## HI IM WORM/SSYNTH AKA WORLDS NO.1 COOLEST NON AWKWARD PERSON
+
+![MICHAELDONTLEAVEMEHERE](https://github.com/user-attachments/assets/08b82ab7-d864-4c27-8b43-b15a151c966e)
 
 <!--
 **notsynthwaving/notsynthwaving** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
